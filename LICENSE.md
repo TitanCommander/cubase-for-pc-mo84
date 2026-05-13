@@ -1,4 +1,4 @@
-# 
+# ultimate Cubase for PC | Cubase for Windows Extension | VST-support + automation offers the most advanced Cubase for PC | Cubase for Windows extension, with VST-support and
 
 
 
